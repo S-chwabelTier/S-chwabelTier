@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @S-chwabelTier
 - 👀 I’m interested in -> privacy
 - 🌱 I’m currently learning -> norwegian
-- 💞️ I’m looking to collaborate on -> nothing so far :(
+- 💞️ I’m looking to collaborate on -> very cool things ;)
 - 📫 How to reach me -> pls dont
 - 😄 Pronouns: S-Tier?
 - ⚡ Fun fact: I practise jumpstyle
